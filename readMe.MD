@@ -1,0 +1,1 @@
+## Reklámujság összeállitó alakalmazás:
